@@ -1,3 +1,4 @@
-## 任鑫的简历
+## 任鑫同学
 
-邮箱 ：renxinzhiliangzhi@163.com
+邮箱 ：rxmind.cn@gmail.com
+博客 ：[rxmind](https://www.cnblogs.com/rxmind/ "rxmind")
